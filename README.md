@@ -1,4 +1,4 @@
-# peterhpaulsen
+# Peter H Paulsen
 Peter H.  Paulsen’s Inspiring Tale Continues to Resonate in 2024
 Two years after its initial release, Peter H. Paulsen’s book, From Brick 
 and Mortar to Prosperity, continues to inspire readers around the 
